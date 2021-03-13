@@ -18,5 +18,5 @@ https://www.facebook.com/ahmat.badali.334
 Web!
 http://jamet1337.ml
 
-## Thanks!
+## Thanks to!
  Indonesian Cyber Team - CytoXploit - Clan1337
